@@ -5,7 +5,7 @@
 <p align="center"> <code style="color" : lightskyblue">𝑭𝒐𝒍𝒍𝒐𝒘 𝒎𝒚 𝑮𝒊𝒕𝑯𝒖𝒃 𝒇𝒐𝒓 𝑭𝑹𝑬𝑬, 𝒐𝒓 𝑰'𝒍𝒍 𝒈𝒆𝒕 𝒚𝒐𝒖! 😈 </code>  </p>
 
 <p align="center">
-<img src="https://github.com/staticmoth-supremacy/EV.EVSY/blob/main/456259949-3f416bc7-6092-41de-af81-aca0d08b6a54.png"
+<img src="https://github.com/staticmoth-supremacy/EV.EVSY/blob/main/1.png"
 
 
 
