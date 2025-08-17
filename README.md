@@ -9,10 +9,11 @@
 
 
 
+-
 <p align="center">
-<img src="https://github.com/user-attachments/assets/e2f2a759-d118-4341-acca-cf798b8a4005" </p>
+<img src="https://github.com/staticmoth-supremacy/EV.EVSY/blob/main/3.png" </p>
 
-***<p align="center"> ♡ sign atabook*** ***<a href="https://verciless.atabook.org/">here ⤸</a>*** 💤 </p>
+***<p align="center"> ♡ 𝐪𝐮𝐞𝐬𝐭𝐢𝐨𝐧𝐬 𝐚𝐫𝐞*** ***<a href="https://evevsy.straw.page/">𝐡𝐞𝐫𝐞 ⤸</a>*** 😈 </p>
 <div align="center">
     <p align="center"> <img src="https://github.com/user-attachments/assets/41a015c9-2bfc-4382-9770-08287e8d8a25"> </p>
 <strong>「 Marshal 」୨ৎ ⋮ She/Her ࿔* ┆ Biggest Idia fan ^_^ </strong>
@@ -70,19 +71,4 @@
 <img src="https://github.com/user-attachments/assets/51803f6c-79ce-40c4-be33-6b2ead22f209">
 <img src="https://github.com/user-attachments/assets/a2790b39-ff4e-4bc4-b992-32e3811feae3">
 <img src="https://github.com/user-attachments/assets/63712689-20dd-405d-8c5b-7c3fbbc559fb">
-
- </p>
-
-<hr>
-
-<p align="center">
-<img src="https://github.com/user-attachments/assets/65941e6a-1520-428b-80c5-c8b4e57d72cd" </p>
-
-
-**<p align="center">MY IDIA SHROUD PLUSH!** ⬇️</p>
-<p align="center">
-<img src="https://github.com/user-attachments/assets/be435306-d4bf-4e22-a179-2cedcd500ea9" </p>
-
-
-
 
