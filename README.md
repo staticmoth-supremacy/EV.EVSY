@@ -2,10 +2,10 @@
 <img src="https://img.shields.io/badge/EV.EVSY-ARTIST-orange?style=plastic"
   </p>
 
-<p align="center"> <code style="color" : lightskyblue">𝐅𝐨𝐥𝐥𝐨𝐰 𝐦𝐲 𝐠𝐢𝐭𝐡𝐮𝐛 𝐟𝐨𝐫 𝐚 𝐅𝐑𝐄𝐄, 𝐋𝐈𝐅𝐄𝐓𝐈𝐌𝐄 𝐬𝐮𝐩𝐩𝐥𝐲 𝐨𝐟 𝐜𝐡𝐢𝐜𝐤𝐞𝐧 𝐚𝐥𝐟𝐫𝐞𝐝𝐨 🤑</code>  </p>
+<p align="center"> <code style="color" : lightskyblue">𝑭𝒐𝒍𝒍𝒐𝒘 𝒎𝒚 𝑮𝒊𝒕𝑯𝒖𝒃 𝒇𝒐𝒓 𝑭𝑹𝑬𝑬, 𝒐𝒓 𝑰'𝒍𝒍 𝒈𝒆𝒕 𝒚𝒐𝒖! 😈 </code>  </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/3f416bc7-6092-41de-af81-aca0d08b6a54"
+<img src="https://github.com/staticmoth-supremacy/EV.EVSY/blob/main/456259949-3f416bc7-6092-41de-af81-aca0d08b6a54.png"
 
 
 
